@@ -1,0 +1,1 @@
+# kirdi-chiqdi-boti
